@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=vodkashotas&label=fans&color=010101)
 
  [pronouns page](https://en.pronouns.page/@void0991) • [ata](https://bakudekuslime.atabook.org/) • [rentry](https://rentry.co/mybrainisrotting) • 
 [strawpage](https://toxictoxicyaoi.straw.page/)
